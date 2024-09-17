@@ -5,10 +5,12 @@
 - 1 3/4 cups granulated sugar
 - 3/4 cup unsweetened cocoa powder
 - 1/2 tsp ground cinnamon
+- 1/2 tsp instant coffee
 
 ## Instructions:
 1. Preheat the oven to 375°F (190°C).
 2. In a large bowl, whisk together the flour, sugar, cocoa powder, and ground cinnamon.
 3. Add a tablespoon of instant coffee to the dry ingredients for a hint of mocha flavor.
 4. Mix in a handful of chocolate chunks for extra indulgence.
-5. Line the bottom of the baking pan with parchment paper for easy cake removal.
+5. Leave batter in fridge for at least an hour, preferably overnight.
+6. Line the bottom of the baking pan with parchment paper for easy cake removal.
